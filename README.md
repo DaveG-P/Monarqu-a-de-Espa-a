@@ -1,6 +1,6 @@
 # Monarquía Española
 ### El escudo de su majestad, Felipe VI de España
-#### -Nombre secular Felipe Juan Pablo Alfonso de Todos los Santos de Borbón y Grecia
+#### -Nombre secular: Felipe Juan Pablo Alfonso de Todos los Santos de Borbón y Grecia
 #### -Nacimiento: 30 January, 1968 (51)
 #### -Casa real: 	Borbón 
 #### -Proclamación: 19 June 2014 
